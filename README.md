@@ -176,7 +176,7 @@ Swami Keshvanand Institute of Technology, Management & Gramothan (SKIT), Jaipur
 
 **LinkedIn:** [Tanishk Kumar Bodani](https://www.linkedin.com/in/tanishk-kumar-bodani-a0039723b/)
 
-**X / Twitter:** [@CtrlAltSavage](https://x.com/CtrlAltSavage)q1
+**X / Twitter:** [@CtrlAltSavage](https://x.com/CtrlAltSavage)
 
 **Email:** [tanishk1976@gmail.com](mailto\:tanishk1976@gmail.com)
 
